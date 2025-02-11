@@ -17,7 +17,7 @@ Prior projects include:
 
 I also have some internship experience as a software engineer intern at Marquardt Switches INC. 
 
-If you need to reach me, contact: rharrison@oakland.edu
+If you need to reach me, contact: rharrison@oakland.edu or add me on LinkedIn https://www.linkedin.com/in/ross-harrison-515610254
 
 Thanks for viewing my GitHub Page!
 
